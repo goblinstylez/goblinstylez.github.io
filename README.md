@@ -1,1 +1,1 @@
-# goblinstylez.github.io
+google.com, pub-5858993336815262, DIRECT, f08c47fec0942fa0
